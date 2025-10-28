@@ -3,7 +3,7 @@
 > **© 2025 Vultures-V. All rights reserved.**
 > **This document may not be copied.**
 
-[View Official Whitepaper →](https://Vultures-V.github.io/VOart-NFTs-Common-Series-Whitepaper/)
+[View Official Whitepaper →](https://Vultures-V.github.io/-VOart-NFTs-Common-Series-Whitepaper/)
 
 ---
 
